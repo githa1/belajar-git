@@ -1,2 +1,1 @@
 belajar
-ya
